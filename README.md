@@ -1,7 +1,1 @@
-'ᴄᴀᴜꜱᴇ ɪᴛ'ꜱ ᴛᴏᴏ ʟɪᴛᴛʟᴇ, ᴡᴀʏ ᴛᴏᴏ ʟᴀᴛᴇ ♪ 
- 
-< ʟᴀᴜꜰᴇʏ 3
-
-![](https://i.pinimg.com/736x/cf/dc/43/cfdc433afb8dbe1e1aa20c572898564a.jpg)
-
-ᴏᴅʏꜱꜱᴇʏ ᴅᴜᴏ
+![](https://scontent-akl1-1.xx.fbcdn.net/v/t1.15752-9/607119445_1357625205841224_9210937126460023690_n.png?stp=dst-png_s2048x2048&_nc_cat=101&ccb=1-7&_nc_sid=0024fc&_nc_ohc=ZVAamggkh1sQ7kNvwH7qM9n&_nc_oc=AdngFLCDVt94q-OchS9U_PsCIRyHLhSnkFBu-IeBEOH411v8zDIATg99orHeVSHxNwI&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-akl1-1.xx&oh=03_Q7cD4AGAm0Tjm6Jy6fEQIvHDCyfPZWOe4DdBnhcMZhlCrmdFzw&oe=6976A944)
